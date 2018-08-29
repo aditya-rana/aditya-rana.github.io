@@ -1,2 +1,2 @@
-# prithvisingh18.github.io
+# aditya-rana.github.io
 My Github page
